@@ -1,1 +1,1 @@
-# The supplementary file & complete text
+# The supplementary file
